@@ -1,0 +1,2 @@
+# mazlum
+İstiyorum 
